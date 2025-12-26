@@ -10,7 +10,7 @@
 💬 Always open to **collaborations and discussions** about coding, open-source, and tech trends.  
 
 🏅 **Achievements:**  
-🔹 **2-time International Robotex Competition participant** 🌍  
+🔹 **3-time International Robotex Competition participant** 🌍  
 🔹 **Winner of 2 National Prizes in Robotex (Line Follower Category)** 🏆  
 🔹 **Student of the Year Award in 9th & 10th Grade** 🏅  
 🔹 **Consistently a Topper in My Class** 📖✨  
