@@ -12,7 +12,7 @@
 🏅 **Achievements:**  
 🔹 **2-time International Robotex Competition participant** 🌍  
 🔹 **Winner of 2 National Prizes in Robotex (Line Follower Category)** 🏆  
-🔹 **Student of the Year Award in 9th Grade** 🏅  
+🔹 **Student of the Year Award in 9th & 10th Grade** 🏅  
 🔹 **Consistently a Topper in My Class** 📖✨  
 
 ---
